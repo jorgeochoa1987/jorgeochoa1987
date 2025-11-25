@@ -29,7 +29,7 @@ I'm **Jorge Ochoa**, a **Full-Stack Developer** and **Systems Engineer** with ov
 📘 **Facebook:** [soyjorge8a](https://www.facebook.com/soyjorge8a)  
 💼 **LinkedIn:** [Jorge Ochoa](https://www.linkedin.com/in/jorgeeduardo-ochoa-buitrago/)  
 🐙 **GitHub:** [jorgeochoa1987](https://github.com/jorgeochoa1987)  
-🫶🏻 **Tiktok:** [soyjorgeeeeee](https://www.tiktok.com/@soyjorgeeeeee)  
+🫶🏻 **Tiktok:** [jorgeochoaok](https://www.tiktok.com/@jorgeochoaok)  
 
 ---
 
